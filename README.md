@@ -8,5 +8,17 @@ Riski Pratama Nofianto
 
 
 
+021002305007
 
+
+
+Praktikum
+
+Analisa
+
+Big 
+
+Data
+
+Ekonomika
 
